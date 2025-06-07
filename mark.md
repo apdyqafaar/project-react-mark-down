@@ -1,4 +1,4 @@
-# 🛒 E-Shop Electronics –  
+# 🛒 E-Shop Electronics –  -
 
 ## 📢 Hordhac
 Ku soo dhawaada soo bandhigidda mashruuceena e-shop! Mashruucani waxa uu ku saabsan yahay dhisidda suuq online ah oo si fudud loogu iibin karo qalab koronto iyo nidaamyo tamarta qoraxda ku shaqeeya. Waxaan rajeyneynaa inuu ka faa’iideeyo dad iyo shirkado badan oo gudaha iyo dibadda jooga.
